@@ -237,4 +237,3 @@ Se Você tiver alguma dúvida sobre esta Política de Privacidade, sobre como tr
 
 ---
 
-Lembre-se, "mano": isso é um esqueleto. Seu advogado vai ter que colocar muita carne nesses ossos. E provavelmente trocar alguns ossos de lugar. Boa sorte!
